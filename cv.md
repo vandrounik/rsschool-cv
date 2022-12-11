@@ -1,3 +1,3 @@
 # Raman Kshesinski
-## contacts
+## contact
 #### email: romankshesinski@gmail.com
